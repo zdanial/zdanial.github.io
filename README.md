@@ -1,1 +1,0 @@
-# zdanial.github.io
